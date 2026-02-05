@@ -4,5 +4,3 @@
 💡 Interested in continuous learning and personal development  
 
 📍 Casablanca, Morocco  
-</br>
-💼 GitHub: https://github.com/Ilyas-SEKHSOUKHI
